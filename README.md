@@ -1,1 +1,1 @@
-# mapping_hinduism
+# Mapping Hinduism
